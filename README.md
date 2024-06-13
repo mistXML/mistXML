@@ -1,6 +1,6 @@
 ## Hello!
 
-### Aspiring Cybersecurity Engineer
+### Aspiring Cybersecurity Expert & Programmer
 
 
 ### Languages 💻
